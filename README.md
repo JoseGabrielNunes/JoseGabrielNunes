@@ -9,7 +9,7 @@ Meu nome é José Gabriel Nunes
 
 ### Você pode entrar em contato comigo através do meu email 📫
 
-josé.gabriel.nunes@escola.pr.gov.br 
+jose.gabriel.nunes@escola.pr.gov.br 
 
 Instagram: @Gabe_nunes07
 
