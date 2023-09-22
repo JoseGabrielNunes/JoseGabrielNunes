@@ -11,7 +11,7 @@ Meu nome é José Gabriel Nunes
 
 jose.gabriel.nunes@escola.pr.gov.br 
 
-📸 Instagram: @Gabe_nunes07
+📸 Instagram:@Gabe_nunes07
 
 
 ![](https://media.tenor.com/PKKCAakpBZIAAAAC/neyney-neymar.gif)
