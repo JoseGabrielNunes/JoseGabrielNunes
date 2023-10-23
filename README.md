@@ -14,7 +14,7 @@ jose.gabriel.nunes@escola.pr.gov.br
 📸 Instagram:@Gabe_nunes07
 
 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fpin%2F593630794636971930%2F&psig=AOvVaw1p-aYoKN7o8WgCSK_7JXYD&ust=1698177910117000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCMDqiev7jIIDFQAAAAAdAAAAABAu)
+![](https://i.pinimg.com/originals/60/a5/d3/60a5d3e80203628d609c6cb0722f0444.gif)
 
 
 
