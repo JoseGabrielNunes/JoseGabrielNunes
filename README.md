@@ -14,7 +14,7 @@ jose.gabriel.nunes@escola.pr.gov.br
 📸 Instagram:@Gabe_nunes07
 
 
-![](https://media.tenor.com/PKKCAakpBZIAAAAC/neyney-neymar.gif)
+![](https://conteudo.imguol.com.br/blogs/3/files/2016/10/romario.gif)
 
 
 
